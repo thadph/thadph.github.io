@@ -9,15 +9,10 @@ Thaddeus Martin G. Pontillas
 ![dslayer](https://github.com/thadph/thadph.github.io/assets/151606286/7e06b78b-9862-4c15-ad01-2bd8dec3cf87)  
 
 
- 
-  <td>
  A man named Tanjiro Kamado lived in the mountains and was responsible for selling charcoal in the nearest town in order to earn money for his family. Realizing it was going to be Dark, a man named Saburo stopped him as Demons are only able to appear at night.He didn't believe it at first, but the expression on the man's face doesn't look like he's lying, so Tanjiro was convinced to spend the night at his place. On his way home, he caught the scent of blood, realizing his family is slaughtered mercilessly by a demon and only one member of the family survived -  and his sister Nezuko, who is turning into a demon slowly. Tanjiro sets out to become a demon slayer to avenge his family and cure his sister. 
  
 ## Attack on Titan
 ![AttackonTitan](https://github.com/thadph/thadph.github.io/assets/151606286/840f0b29-ff83-493e-99b2-fe1b5956d10b)
-
-
-
 
 
 
