@@ -27,5 +27,5 @@ Knowing that the world beyond the walls are vast and full of unimaginable things
 ![image](https://github.com/thadph/thadph.github.io/assets/151606286/74f0f757-7741-4f91-9c8b-8c8645b7dc12)
 
 It follows the story of Yuji Itadori, an ordinary boy who crosses paths with Megumi Fushiguro, a Jujutsu Sorcerer searching for a powerful Cursed Object known as Ryomen Sukuna's finger. Unintentionally, Yuji's friends unseal the Cursed Object, attracting dangerous Curses to their location
-  </td>
+  
 
