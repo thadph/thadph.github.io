@@ -20,12 +20,12 @@ Thaddeus Martin G. Pontillas
 
 
 Knowing that the world beyond the walls are vast and full of unimaginable things, a young boy named Eren, together with his friends, Armin and Mikasa . Wanted to set out and learn more about the wonders of the world and find freedom. Despite knowing that countless titans are roaming outside of these walls, they hoped it would turn out well. Then it happened, the wall was breached by the Colossal titan, a humid-giant who brings destruction and immense steam within it. The hole in the wall made it possible for smaller titans to get in which causes havocs upon the citizens of Shigansgina District. Everywhere there is blood and screaming. The young Eren saw a titan coming for their mother who was not able to move because of a rubble,and decided to help his mom along with a scout but his mother told the Scout to evacuate his children with his friend to Wall Rose and leave her instead. As they are going away young Eren witnessed his mother being eaten. As he grows up, he become a scout. He witnessed the death of his comrades which soon changes his perspective of the world. 
- </td>
+ 
   <td>
 	  
 ## Jujutsu Kaisen
-![image](https://github.com/thadph/thadph.github.io/assets/151606286/d9744785-f0c4-46bd-8468-4ed172f339b2)
+![image](https://github.com/thadph/thadph.github.io/assets/151606286/74f0f757-7741-4f91-9c8b-8c8645b7dc12)
 
-
+It follows the story of Yuji Itadori, an ordinary boy who crosses paths with Megumi Fushiguro, a Jujutsu Sorcerer searching for a powerful Cursed Object known as Ryomen Sukuna's finger. Unintentionally, Yuji's friends unseal the Cursed Object, attracting dangerous Curses to their location
   </td>
 
